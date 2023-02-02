@@ -1,1 +1,0 @@
-# thedanielpetrov.github.io
